@@ -1,4 +1,4 @@
-
+Enhance your Hotspot Shield experience with Hotspot Shield ultimate Extension: IP-masking & WireGuard-support, the #1 extension. Includes IP-masking and WireGuard-support for a
 
 
 
